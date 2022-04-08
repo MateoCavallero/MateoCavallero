@@ -8,8 +8,6 @@ Actualmente estoy trabajando en proyectos por mi cuenta.
 
 Busco colaborar en diferentes proyectos que me reten a seguir mejorando.
 
-Podes comunicarte conmigo: matucavallero123@gmail.com.
-
 Me encantaria conseguir mi primer trabajo, estoy muy predispuesto a seguir aprendiendo y siempre trato de aportar mis conocimientos para ayudar a quien me necesite.
 
 Conectate conmigo: https://www.linkedin.com/in/mateo-cavallero/
